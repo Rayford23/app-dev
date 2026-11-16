@@ -1,5 +1,5 @@
 # My favorite series :> 
-**By: Angel L. Taneo**
+**By: Baguna, Alian Lei P.**
 
 1. **From (the series)**
 *From follows strangers trapped in a sinister small town they cannot escape, besieged each night by deadly forest creatures as they search for the town’s secrets and a way out. *
